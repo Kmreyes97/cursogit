@@ -7,3 +7,9 @@ este es mi repositorio
 *el3
 *kimberly 
 *genesis
+*genesis es la mas bella 
+*JAJAJAJAJAJAJA
+
+*GENESITA PORQUE ERES TAN GUAPA
+*IDK 
+
