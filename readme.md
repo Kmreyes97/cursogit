@@ -13,3 +13,6 @@ este es mi repositorio
 *GENESITA PORQUE ERES TAN GUAPA
 *IDK 
 
+# como usar
+./hola.py
+
